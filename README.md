@@ -1,1 +1,1 @@
-# myCPPgames
+nem szeretem a Microsoftot
